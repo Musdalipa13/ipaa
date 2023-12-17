@@ -2,8 +2,8 @@
 <br> <img src="https://user-images.githubusercontent.com/62280849/128853969-84ff61d3-28c0-418d-9946-341ea61c7dce.gif" width="50" center > Hi,There!  I Am Musdalipa<img src="https://miro.medium.com/v2/resize:fit:1000/1*ZXQifyIny_o2bFmz1BBz3A.gif" width="30" /> </h2>
 
 Hello my name is Musdalipa, I am from Planet Earth, just contact me via Telegram or Instagram,
-I am here to survive in a world full of smog.
-Motivasi saya "Always be yourself because the original is always more valuable than the copy".
+I am here to survive in a world full of  smog
+mark lee percaya bahwa "belajar adalah proses yang berkelanjutan. kita tidak boleh berhenti belajar, bahkan jika itu hal yang sudah kita ketahui. dengan terus belajar, kita akan menjadi pribadi yang lebih baik dan lebih berpengetahuan."
 
 <img src="https://github.com/MishManners/MishManners/blob/master/MishManners%20Room%20animated.gif">
 
